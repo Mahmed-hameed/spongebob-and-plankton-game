@@ -1,0 +1,1 @@
+Join SpongeBob SquarePants in an underwater adventure as he faces off against the notorious Plankton! In this thrilling game, you will control SpongeBob using the arrow keys on your keyboard. Navigate through Bikini Bottom, dodge obstacles, and defeat Plankton’s evil schemes.
